@@ -6,7 +6,7 @@
 
 - 📫 How to reach me: **akshitsangwan10@gmail.com**
 
-- ⚡ Fun fact: **I am something of a developer myself:)**
+- ⚡ Fun fact: **I am something of a scientist myself:)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
